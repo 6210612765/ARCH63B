@@ -27,3 +27,6 @@ https://youtu.be/7qo0R148SY0.
 
 CLIP7
 https://youtu.be/RvivVv-wFa8
+
+CLIP8
+https://youtu.be/fSGoNdziX80
