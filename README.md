@@ -30,3 +30,6 @@ https://youtu.be/RvivVv-wFa8
 
 CLIP8
 https://youtu.be/fSGoNdziX80
+
+CLIP9
+https://www.youtube.com/watch?v=f6uiK6V8c0Q
